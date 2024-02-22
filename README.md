@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Krq1s
+- 👋 Hi, I’m @mrsigmamc
 - 👀 I’m interested in hi
 - 🌱 I’m currently learning hi
 - 💞️ I’m looking to collaborate on hi
